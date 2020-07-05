@@ -1,2 +1,1 @@
-hoge
-hoge2
+Aohohohohho
